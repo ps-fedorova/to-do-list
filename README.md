@@ -2,4 +2,4 @@
 
 https://ps-fedorova.github.io/to-do-list/
 
-[Ссылка на первоисточник](https://www.youtube.com/watch?v=OvLWWvjoi8s)
+[Ссылка на первоисточник (видео Владилена Минина с YouTube)](https://www.youtube.com/watch?v=OvLWWvjoi8s)
